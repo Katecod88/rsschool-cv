@@ -1,1 +1,1 @@
-# rsschool-cv
+https://katecod88.github.io/rsschool-cv/cv
